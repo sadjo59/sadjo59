@@ -18,26 +18,6 @@ Here are some ideas to get you started:
 # Daffe Chadjou,Assistant de direction
 
 ## À propos de moi
-Je suis très dévoué(e) et excellent(e) pour organiser les choses.f
+Je suis très dévoué(e) et excellent(e) pour organiser les choses.
 
-## Expérience
-
-- Optimisation des Processus de Bureau (2021-Présent)
-- Soutien Exécutif (2019-2021)
-- Optimisation des Processus Administratifs (2018-2019)
-- Gestion d'Événements d'Entreprise (2015-2018)
-- Gestion de l'Espace de Travail, Résolution de Problémes
-
-## Compétences
-
-- Gestion du Temps
-- Communication
-Analyse de Donées Administratives, Gestion de la logistique
-- Plannification stratégique
-
-** Hobbies
-
--Football
-- Judos
-- Lecture
 
