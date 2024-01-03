@@ -18,6 +18,6 @@ Here are some ideas to get you started:
 # Daffe Chadjou
 
 ## À propos de moi
-Je suis très dévoué(e) et excellent(e) pour organiser les choses.
+Je suis très dévoué et excellent pour organiser les choses.
 
 
