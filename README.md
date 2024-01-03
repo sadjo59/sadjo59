@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-# Daffe Chadjou,Assistant de direction
+# Daffe Chadjou
 
 ## À propos de moi
 Je suis très dévoué(e) et excellent(e) pour organiser les choses.
